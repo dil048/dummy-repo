@@ -1,2 +1,2 @@
 # dummy-repo
-asfdsadfsdfasd
+i like xinxin.
